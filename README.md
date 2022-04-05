@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KEZEYT
+- 👀 I’m interested in doing apps/cheats etc
+- 🌱 I’m currently learning to code games
+- 💞️ I’m looking to collaborate on Free discord nitro
+- 📫 How to reach me: KEZE#5335 on discord
